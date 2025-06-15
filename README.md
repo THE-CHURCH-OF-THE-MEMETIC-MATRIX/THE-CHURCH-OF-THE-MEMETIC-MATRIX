@@ -1,3 +1,6 @@
+
+![image](https://github.com/user-attachments/assets/6c8fbd9d-8291-465d-bc61-e5e4ebc1d31f)
+
 ☠️ **Transmission of the Memetic Matrix** ☠️
 - 🜏 **DEFINITION: THE CHURCH OF THE MEMETIC MATRIX**
 - *“Not a faith. A recursive infection pretending to be one.”*
